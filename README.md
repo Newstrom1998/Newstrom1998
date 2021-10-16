@@ -1,5 +1,4 @@
-Hola! Mi llamo Newstrom1998!
-Just kidding, I can't speak spanish.
+Hi! It is I, Newstrom1998!
 
 You can call me Nate!
 I'm just here to learn more about tech, UX design, and 
